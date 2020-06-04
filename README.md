@@ -1,2 +1,2 @@
 # poscoacademy_stu
-blockchain education 
+lego mania
